@@ -1,5 +1,5 @@
 making rentries is boring and i dont wanna do all that
-# **sap / bwomsy they/them** https://bwomsy.carrd.co for more info 
+# **sap / bwomsy they/them** - https://bwomsy.carrd.co for more info 
 	**@bwomsy** on most places, pls dont follow/friend w/o talking to me first
 
 	w2i always + ask to c+h , i promise i dont bite! feel free 2 talk to me :3 especially if same fandom
