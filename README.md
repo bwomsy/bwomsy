@@ -13,6 +13,6 @@ i ❤️ scaramouche + two time + sprout + vee + scamduo
 
 
 
-i have hired this cat to stare at you v
+i have hired this cat to stare at you v (by @fenkko on twt)
 
 ![fucking idiot](https://github.com/user-attachments/assets/9a724891-2596-416c-8655-a151f6499bc1)
