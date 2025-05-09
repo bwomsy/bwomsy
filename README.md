@@ -7,7 +7,7 @@ if you ever whisper me and i do not respond i do NOT hate you i am probably just
 
 -13, proship, wss, etc dni
 
-main interests rn roblox fandoms ( forsaken + dw ) + hyv + mcyt (ls, uu, pk/pvpciv, mcsr/hbg + others)
+main interests rn roblox fandoms ( forsaken + dw ) + hyv + mcyt (ls, uu, pk/pvpciv, mcsr/hbg + b&b, knd, others)
 
 i ❤️ scaramouche + two time + sprout + vee + scamduo
 
