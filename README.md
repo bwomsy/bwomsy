@@ -5,7 +5,7 @@ making rentries is boring and i dont wanna do all that
 
 if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
--13, proship, wss, etc dni
+-13, proship, wss, etc dni. And the people i have tagged
 
 main interests rn roblox fandoms ( forsaken + dw ) + hyv + mcyt (ls, uu, pk/pvpciv, mcsr/hbg, b&b, knd, others)
 
