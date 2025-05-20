@@ -5,7 +5,7 @@ more info on rentry
 
 if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
-main interests rn roblox fandoms ( forsaken + dw ) + hyv + mcyt (ls, uu, pk/pvpciv, mcsr/hbg, b&b, knd, others)
+i disconnect a lot
 
 
 i have hired this cat to stare at you v (by @fenkko on twt)
