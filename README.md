@@ -1,5 +1,5 @@
 # **sap / bwomsy they/them**
-more info on rentry
+more info on rentry / carrd, rentry made for pt
 
 @bwomsy on most places, pls dont follow/friend w/o talking to me first
 
