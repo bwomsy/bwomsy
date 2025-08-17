@@ -5,7 +5,7 @@ more info on rentry / carrd, rentry made for pt
 
 if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
-i disconnect a lot
+i was named saps before saparatas i Promise 
 
 
 i have hired this cat to stare at you v (by @fenkko on twt)
