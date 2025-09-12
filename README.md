@@ -5,4 +5,5 @@ more info on rentry / carrd, rentry made for pt
 if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
 sign my atabook lelelelelele
-https://cdn.discordapp.com/emojis/1394126774413295627.webp?size=44
+<img width="124" height="113" alt="image" src="https://github.com/user-attachments/assets/b342bb60-8709-4263-8273-066fb8866229" />
+
