@@ -1,13 +1,7 @@
-# **sap / bwomsy they/them**
 more info on rentry / carrd, rentry made for pt
 
 @bwomsy on most places, pls dont follow/friend w/o talking to me first
 
 if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
-i was named sap before saparata i Promise 
-
-
-i have hired this cat to stare at you v (by @fenkko on twt)
-
-![fucking idiot](https://github.com/user-attachments/assets/9a724891-2596-416c-8655-a151f6499bc1)
+sign my atabook lelelelelele
