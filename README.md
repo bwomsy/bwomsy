@@ -9,3 +9,10 @@ not a hax irl . Just fixated
 
 if you ever whisper me and i do not respond i do NOT hate you 
 i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
+
+<br>
+<br>
+<br>
+<br>
+<img align="left" width="200" height="200" src="https://i.imgur.com/28hQ2pp.png">
+my profiles rn
