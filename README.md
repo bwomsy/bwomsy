@@ -1,10 +1,11 @@
-more info on rentry / carrd, rentry made for pt
+
+<img align="left" width="100" height="200" src="https://s.namemc.com/3d/skin/body.png?id=e9d60bec5387a1ed&model=slim&theta=30&phi=21&time=90&width=100&height=200">
+
+[rentry](https://rentry.co/bwomsy) [ata](https://bwomsy.atabook.org)
+
+not a hax irl . Just fixated
 
 @bwomsy on most places, pls dont follow/friend w/o talking to me first
 
-if you ever whisper me and i do not respond i do NOT hate you i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
-
-sign my atabook lelelelelele
-
-<img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/b342bb60-8709-4263-8273-066fb8866229" />
-
+if you ever whisper me and i do not respond i do NOT hate you 
+i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
