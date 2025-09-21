@@ -1,7 +1,7 @@
 
 <img align="left" width="100" height="200" src="https://s.namemc.com/3d/skin/body.png?id=e9d60bec5387a1ed&model=slim&theta=30&phi=21&time=90&width=100&height=200">
 
-[rentry](https://rentry.co/bwomsy) [ata](https://bwomsy.atabook.org)
+[rentry](https://rentry.co/hackingnoises) [ata](https://bwomsy.atabook.org)
 
 not a hax irl . Just fixated
 
