@@ -12,4 +12,4 @@ i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
 <br>
 <br>
-i fucking LOVE m inecraft speedrunning!!!!!!!!!!!!!!!!!!!
+its okay to be a mongey 
