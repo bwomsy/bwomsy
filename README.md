@@ -3,7 +3,7 @@
 
 [rentry](https://rentry.co/hackingnoises) [ata](https://bwomsy.atabook.org)
 
-### pfp / rentry art by [@candlecakees on twt](https://x.com/candlecakees)
+### pfp / rentry art by [@candlecakees on twt](https://x.com/candlecakees) :3
 not a hax irl . Just fixated
 
 @bwomsy on most places, pls dont follow/friend w/o talking to me first
