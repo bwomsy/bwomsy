@@ -12,4 +12,4 @@ if you ever whisper me and i do not respond i do NOT hate you
 i am probably just tabbed out / didnt see it. PROMISE!!!!!!!!
 
 <br>
-that one friend whos too hax
+go follow @timelyhax on twt Ok?
