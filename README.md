@@ -7,6 +7,7 @@
     
 #### pfp / rentry art by [@candlecakees on twt](https://x.com/candlecakees) :3
 not a hax irl . Just fixated
+
 @bwomsy on most places, pls dont follow/friend w/o talking to me first
 
 if you ever whisper me and i do not respond i do NOT hate you 
